@@ -1,2 +1,4 @@
 # worldDoomed
-best new ios game
+Best new ios game
+
+####Get ready it's launching soon
